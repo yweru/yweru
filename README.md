@@ -1,4 +1,4 @@
-![w](https://media.discordapp.net/attachments/1407813088341921865/1508045951044943882/9e346d87b582fcd72753ede191c1cefc_1.jpg?ex=6a141cbc&is=6a12cb3c&hm=229b40e5c044386f7a212467e3bd0a3dce8038bc17389c21f3b5db58ace32173&=&format=webp)
+![w](https://i.pinimg.com/736x/fb/68/60/fb6860a2b57d596001ec6087792dace2.jpg)
 
 https://yweru.atabook.org <- sign my ata now
 
